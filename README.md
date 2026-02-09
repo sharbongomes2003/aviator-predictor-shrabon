@@ -1,4 +1,4 @@
-# 🚀 Aviator AI Predictor Pro - V4.0
+# 🚀 Aviator Predictor Pro - V4.0
 Developed by **★ S H R A B O N   G O M E Z ★**
 
 
